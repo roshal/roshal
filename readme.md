@@ -1,2 +1,2 @@
 
-https://t.me/roshal - telegram
+https://telegram.me/roshal
